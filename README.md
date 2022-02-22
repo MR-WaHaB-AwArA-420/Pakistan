@@ -24,6 +24,10 @@ THIS TOOL IS FREE🤘🙂
 
 💔 python2 King.py
 
+💔 USERNAME:MR.WAHAB
+
+💔 PASSWORD:AWARA
+
 
 MY FB LINK......💔
 https://www.facebook.com/Mr.WaHaB.AwArA.420
